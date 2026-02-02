@@ -1,4 +1,4 @@
 <div align="center">
-<img width="571" height="306" alt="Untitled187_20260105183328" src="https://github.com/user-attachments/assets/9418d8c8-26fc-41bd-9568-fb8cd1517cb0" />
+  
+  ![download (4) (1)](https://github.com/user-attachments/assets/0a444292-ba99-43a1-a401-710f969c00f4)
 
-This is being remade!

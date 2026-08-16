@@ -2,27 +2,25 @@
 
 <img width="142" height="229" alt="Tsurugi Kinjo" src="https://github.com/user-attachments/assets/875fa3f0-9456-4669-b4eb-043520272b74" />
 
-## **TSURUGI KINJO**
+# **TSURUGI KINJO**
 
-`ULTIMATE POLICE OFFICER`
+### `ULTIMATE POLICE OFFICER`
 
-**17**　・　**He / They / Hym**
-
-<br>
-
-> *If it wasn't like this... if I was just an ordinary student*
-> *instead of The Ultimate Police Officer...*
-> **Could I have been friends with everyone...?**
+`17`　✦　`He / They / Hym`
 
 <br>
 
-### **ABOUT ME**
+**“If it wasn't like this... if I was just an ordinary student**
+**instead of The Ultimate Police Officer...**
 
-**C+H is okay!**
-The easiest way to get ahold of me is to **whisper.**
+**Could I have been friends with everyone...?”**
 
-I really enjoy making friends,
-so don't be afraid to come say hi! ♡
+<br>
+
+`C+H OKAY`　✦　`WHISPER TO INTERACT`
+
+**I really enjoy making friends!**
+**Don't be shy !*
 
 <br>
 

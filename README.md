@@ -20,7 +20,7 @@
 `C+H OKAY`　✦　`WHISPER TO INTERACT`
 
 **I really enjoy making friends!**
-**Don't be shy !*
+**Don't be shy !**
 
 <br>
 

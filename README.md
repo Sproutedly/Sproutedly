@@ -1,28 +1,30 @@
 <div align="center">
 
-<img width="142" height="229" alt="Tsurugi Kinjo" src="https://github.com/user-attachments/assets/875fa3f0-9456-4669-b4eb-043520272b74" />
+<img width="300" height="508" alt="Untitled174_20260816162052" src="https://github.com/user-attachments/assets/2802fc77-33a4-48bb-93e7-8ce5de5f569a" />
 
-# **TSURUGI KINJO**
+# **You can call me Anthony!** *♡*
 
-### `ULTIMATE POLICE OFFICER`
+*You're also free to call me Tsurugi or Kinjo, if you feel inclined.*
 
 `17`　✦　`He / They / Hym`
 
-<br>
+> **“Nice to meet you. My name is Tsurugi Kinjo. Let's get along.”**
 
-**“If it wasn't like this... if I was just an ordinary student**
-**instead of The Ultimate Police Officer...**
+`C+H VERY MUCH WELCOMED`　✦　`WHISPER TO INTERACT`
 
-**Could I have been friends with everyone...?”**
+**DRA & DRDT FANS, PLEASE INT!**
+*I'm a multishipper, very fixated on Kinjomae & Yamarugi right now!*
+**If you want to talk, don't hesitate!**
 
-<br>
+୨୧ ────── ✦ ────── ୨୧
 
-`C+H OKAY`　✦　`WHISPER TO INTERACT`
+`SELECTIVE FOLLOWBACK`
+*I'll moot you if I think you're cool!*
 
-**I really enjoy making friends!**
-**Don't be shy !**
+୨୧ ────── ✦ ────── ୨୧
 
-<br>
+**DNI:** basic DNI criteria + don't discuss NSFW topics around me in-game.
+**It's called the safe server for a reason.**
 
 <img width="110" height="60" alt="stamp" src="https://github.com/user-attachments/assets/a7318eb7-58f2-496a-b2fb-1cf1e39ee673" />
 <img width="99" height="56" alt="stamp" src="https://github.com/user-attachments/assets/5acd1869-0bb5-40c1-bdd4-1799c67e4dcc" />
